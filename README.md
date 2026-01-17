@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-1HEDR980925HCLRVC04
+HEDR980925HCLRVC04
